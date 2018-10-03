@@ -1,7 +1,7 @@
 <h2><a href="https://shanamtra.tumblr.com/post/178684539884/t%C3%A1c-d%E1%BB%A5ng-tr%C3%A0-tuy%E1%BA%BFt-shan-s%E1%BA%A3n-ph%E1%BA%A9m-t%E1%BB%AB-thi%C3%AAn-nhi%C3%AAn">Tác dụng trà tuyết shan - Sản phẩm từ thiên nhiên</a></h2>
 
 <div class="body-text">
-<p>Trà Shan Tuyết loại trà của sự lôi cuốn đê mê đánh vào giác quan của người thưởng thức mà trà còn mang trong mình nhiều công dụng thần kỳ mà ngay cả những người am hiểu nhất về loại trà quý hiếm này cũng không ngờ tới. Cùng tìm hiểu về <em><strong>tác dụng trà Shan Tuyết</strong></em> qua bài viết dưới đây của Shanam</p>
+<p>Trà Shan Tuyết loại trà của sự lôi cuốn đê mê đánh vào giác quan của người thưởng thức mà trà còn mang trong mình nhiều công dụng thần kỳ mà ngay cả những người am hiểu nhất về loại trà quý hiếm này cũng không ngờ tới. Cùng tìm hiểu về <a href="https://github.com/shanamtra/cong-dung-tra-shan-tuyet.html/"><em><strong>tác dụng trà Shan Tuyết</strong></em></a> qua bài viết dưới đây của Shanam</p>
 
 <h2>Thông tin về trà Shan tuyết</h2>
 
@@ -36,4 +36,10 @@
 <p>Trên đây là 4 <strong>tác dụng của trà shan tuyết</strong> giúp cho những anh chị em đang có ý định muốn tham khảo tìm hiểu về trà có thể biết nhiều hơn về một món thi vị tao nhã này.</p>
 
 <p>Bạn có thể tham khảo thêm chi tiết về các công dụng của trà shan Tuyết<a href="https://t.umblr.com/redirect?z=https%3A%2F%2Fshanam.com.vn%2Fcong-dung-tra-shan-tuyet.html&amp;t=YjhmMTJiZmExNzZkODY1Zjc4MWJmYTk4ZjRiMDE0Y2JjOTk0NzA4YSxWakxRbDBJTA%3D%3D&amp;b=t%3AnB0N7axJZFD19W4uC1rANw&amp;p=https%3A%2F%2Fshanamtra.tumblr.com%2Fpost%2F178684539884%2Ft%C3%A1c-d%E1%BB%A5ng-tr%C3%A0-tuy%E1%BA%BFt-shan-s%E1%BA%A3n-ph%E1%BA%A9m-t%E1%BB%AB-thi%C3%AAn-nhi%C3%AAn&amp;m=1"><strong> tại đây</strong></a> nhé.</p>
+
+<p><strong>Xem thêm bài viết trước của chúng tôi tại :</strong><br />
+<strong><a href="https://github.com/shanamtra/cach-pha-tra-shan-tuyet.html/" rel="nofollow" style="box-sizing: border-box; background-color: transparent; color: rgb(3, 102, 214); text-decoration-line: none;">Pha trà Shan Tuyết đúng cách | Bạn đã sẵn sàng chưa</a><br />
+<a href="https://github.com/shanamtra/tra-ngon-nhat-the-gioi.html">Những loại trà ngon nhất thế giới làm say đắm khách thập phương</a></strong></p>
+
+<p><strong><a href="https://github.com/shanamtra/tra-ngon-nhat-viet-nam.html/">Top 4 Các loại trà ngon nhất Việt Nam khiến bạn ngất ngây</a></strong></p>
 </div>
