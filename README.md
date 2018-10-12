@@ -6,7 +6,7 @@
 
 <h2>Thông tin về trà Shan tuyết</h2>
 
-<p>Trà&nbsp;Shan Tuyết&nbsp;còn được mệnh danh là đệ nhất trà Việt, là một loại trà thường sinh trưởng trên núi cao của miền Tây Bắc Việt Nam, ở độ cao 1000 &ndash; 2800m, nơi quanh năm có khí hậu lạnh và sương mù bao phủ. Nhờ sinh trưởng hoang dã ở môi trường lạnh, ít tác động của con người nên cây trà phát triển khá chậm nhưng lại có tuổi thọ rất cao, từ 100 đến 200 năm thành những cây cổ thụ to lớn. Trà có mùi thơm dịu, nước trà mang màu vàng đặc biệt như màu mật ong. Shan Tuyết trà nằm trong <a href="https://github.com/shanamtra/tra-ngon-nhat-viet-nam.html/" rel="nofollow">Top 5 các loại trà ngon nhất Việt Nam</a></p>
+<p>Trà&nbsp;Shan Tuyết&nbsp;còn được mệnh danh là đệ nhất trà Việt, là một loại trà thường sinh trưởng trên núi cao của miền Tây Bắc Việt Nam, ở độ cao 1000 &ndash; 2800m, nơi quanh năm có khí hậu lạnh và sương mù bao phủ. Nhờ sinh trưởng hoang dã ở môi trường lạnh, ít tác động của con người nên cây trà phát triển khá chậm nhưng lại có tuổi thọ rất cao, từ 100 đến 200 năm thành những cây cổ thụ to lớn. Trà có mùi thơm dịu, nước trà mang màu vàng đặc biệt như màu mật ong. Shan Tuyết trà nằm trong <strong><a href="http://www.imfaceplate.com/shanamtra/cac-loai-tra-ngon-nhat-viet-nam-khong-the-bo-qua" rel="nofollow">Top 5 các loại trà ngon nhất Việt Nam</a></strong></p>
 
 <p>Hiện nay ở khu vực Tây Bắc nước ta có 6 tỉnh ghi nhận sự xuất hiện trà shan tuyết, trong đó Sơn La và Yên Bái là hai nơi được ghi nhận có chất lượng tốt nhất.</p>
 
